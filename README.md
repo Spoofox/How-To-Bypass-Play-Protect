@@ -1,8 +1,10 @@
 # How-To-Bypass-Play-Protect
 
-How To Bypass Play Protect....
+How To Bypass Play Protect
+如何绕过游戏保护
 
 #How-To-Bypass-Play-Protect #bypass Google Play..,... #Apkcrypter
+#如何绕过播放保护 #绕过 Google Play..,... #Apkcrypter
 
 
 
